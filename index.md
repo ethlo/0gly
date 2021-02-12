@@ -1,1 +1,1 @@
-![alt text](0gly.jpg)
+Wizards are overrated. Follow the lizards.
